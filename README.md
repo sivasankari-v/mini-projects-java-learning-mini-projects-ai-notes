@@ -1,1 +1,1 @@
-# mini-projects-java-learning-mini-projects-ai-notes
+# mini-projects-
